@@ -16,6 +16,7 @@ You have 30 days left in your trial, which includes all featuresChoose a plan to
 7.	
 Current pageOpens in new window
 Files
+![Uploading image.png…]()
 
 •	
 
